@@ -11,4 +11,5 @@ Muhammadiyah di masa pandemi
 Referensi :
 * Pallete warna : [ColorHunt](https://colorhunt.co/)
 * Psychology warna : [99designs](https://99designs.com/logo-design/psychology-of-color)
+* web sekolah : [UPH](https://www.uph.edu/), [https://www.acsjakarta.sch.id/](https://www.acsjakarta.sch.id/)
 
